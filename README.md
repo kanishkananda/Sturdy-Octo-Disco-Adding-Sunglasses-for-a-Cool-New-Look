@@ -1,4 +1,4 @@
-# Sturdy-Octo-Disco-Adding-Sunglasses-for-a-Cool-New-Look
+# WORKSHOP 1 : Sturdy-Octo-Disco-Adding-Sunglasses-for-a-Cool-New-Look
 # NAME: N.KANISHKA
 # REG NO: 212225230127
 
